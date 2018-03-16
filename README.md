@@ -11,8 +11,9 @@
 * 18068835587@163.com  小金
 * shen4399@gmail.com 沈总
 * mouxiao1014@gmail.com  渐行渐远丶
-* 414939902@qq.com 小路人
+* 414939902@qq.com *路总*
 * 317269520@qq.com 小叶子
+* 1192373005@qq.com DinosaurAges
 
 
 update log
